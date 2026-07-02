@@ -131,9 +131,9 @@ To become a skilled ServiceNow Developer and contribute to building efficient en
 
 ## 🤝 Connect With Me
 
-💼 LinkedIn
+💼 LinkedIn : www.linkedin.com/in/mohamed-rayan-591a5927b
 
-📧 Email
+📧 Email : mohamedrayan0126@gmail.com
 
 ---
 
